@@ -1,4 +1,4 @@
-#TACTHUB's BlueOcean Incubator
+#BlueOcean Incubator - TACT IMPACT SCORECARD
 
 We're redefining how we can take charge of our own impact driven careers in this new era! Our BlueOcean Incubator is a global digital incubator that builds upon blue ocean economical strategies--rather that what occupies—most of our systemic world today; red ocean strategies. 
 
